@@ -1,4 +1,4 @@
 breckinloggins.github.com
 =========================
 
-Breckin Loggins' Blog
+Breckin Loggins' Page 
